@@ -1,4 +1,5 @@
-## if youre a big fan or real fan of dandys world, please dni![47496b5224c0a7a855bd2bb166792d08](https://github.com/user-attachments/assets/2cb232e7-7c8f-4fbd-b071-f70f1809ed61)
+## if youre a big fan or real fan of dandys world, please do NOT and never interact with me unless youre an person who never cared about ship. thank you
+![47496b5224c0a7a855bd2bb166792d08](https://github.com/user-attachments/assets/2cb232e7-7c8f-4fbd-b071-f70f1809ed61)
 ![e184c23e8fe98bc01759a5c9ec4ecc8a](https://github.com/user-attachments/assets/38ab53fa-1296-458c-9506-d7f68f041d25)
 ![e611e3047e2eddcb61cfb49ecc936b2f](https://github.com/user-attachments/assets/5cc15c64-e173-4f35-89f1-ab92e67b2a85)
 ![1148a22babb332e2626caab68fd91217](https://github.com/user-attachments/assets/3ca550c3-c307-4d30-97b2-e6bbc08f438b)
