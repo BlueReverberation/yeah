@@ -1,1 +1,9 @@
-# yeah
+## if youre a big fan or real fan of dandys world, please dni![47496b5224c0a7a855bd2bb166792d08](https://github.com/user-attachments/assets/2cb232e7-7c8f-4fbd-b071-f70f1809ed61)
+![e184c23e8fe98bc01759a5c9ec4ecc8a](https://github.com/user-attachments/assets/38ab53fa-1296-458c-9506-d7f68f041d25)
+![e611e3047e2eddcb61cfb49ecc936b2f](https://github.com/user-attachments/assets/5cc15c64-e173-4f35-89f1-ab92e67b2a85)
+![1148a22babb332e2626caab68fd91217](https://github.com/user-attachments/assets/3ca550c3-c307-4d30-97b2-e6bbc08f438b)
+![1ded3829ab323f41dcf65fe19030cfdc](https://github.com/user-attachments/assets/fec068ca-7796-4e15-b56c-84e73240a0b5)
+![f36d92beac7008ac7d4c24e3d584643c](https://github.com/user-attachments/assets/42fd61a1-df4d-4363-8681-a72fb4e84d6a)
+![1d0b7960268b32ae39f66cdd48eb4285](https://github.com/user-attachments/assets/99a649c0-c155-438d-9906-a19dd9c7c966)
+![![ee31c6bc86a157fe3d48e42df1fd40df](https://github.com/user-attachments/assets/7cd16063-d425-40f3-965e-f7723618e472)
+a580f7f07a0242076556fc898db1b160](https://github.com/user-attachments/assets/6ee5e365-d854-4c52-91fe-b5562c302d68)
